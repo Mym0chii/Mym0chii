@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Mym0chii
+- 👀 I’m interested in Genshin Impact and Kpop.
+- 🌱 I’m currently learning Manhwas and books to learn about moderation.
